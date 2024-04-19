@@ -19,10 +19,10 @@ There will be downtempo music/lo-fi beats and some snacks/drinks. Bring some of 
 
 If strangers giving each other massages / sensory play / light shibari could put you in a challenged headspace, consider other alternatives for your evening entertainment.
 
+[Understanding consent](https://umatter.princeton.edu/respect/consent) is sexy, it is mandatory, and it is JordanCon policy. Take care of each other.
+
 See you soon.
 
 
-========
-ROOM 911
-========
+### ROOM 911
 
